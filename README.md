@@ -1,1 +1,1 @@
-idk whats wrong
+whats wrong with my original readme
